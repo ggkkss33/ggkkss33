@@ -1,0 +1,7 @@
+- 👋 Hi, I'm @ggkkss33
+- 👀 I'm interested in software content
+- 🌱 I'm currently learning Javascript
+- 💞️️ I'm looking to collaborate on programming
+- 📫 How To Reach Me Instragram
+- 😄 Pronouns: Amd/ryzen
+- ⚡ Fun fact: Amd user
